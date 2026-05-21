@@ -1,2 +1,3 @@
-# Department-of-State-RxUSA
+# U.S. Department of State (RxUSA)
 The U.S. Department of State website provides official information on American diplomacy, foreign policy, international relations, travel advisories, visas, passports, global partnerships, press releases, and government services. It also features news, speeches, embassy resources, and updates on worldwide political and security matters.
+Please note that this website is not affiliated with any real organization or government. It has been created for purely fictional purposes related to roleplay within the “RxUSA” community. Copyright regulations apply to this website. For any questions regarding these rights or any matter related to the website, please contact “hzf.mtp”.
